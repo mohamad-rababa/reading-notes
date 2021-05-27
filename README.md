@@ -1,2 +1,2 @@
 # reading-notes
-svvvvvvvmmmm
+svvvvvvvmmmm ko
